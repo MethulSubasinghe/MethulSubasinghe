@@ -1,1 +1,1 @@
-# Methul-
+My name is Methul Subasinghe. I'm currently a student of staffordshire university learning through their partner APIIT in Sri Lanka. I am currently studying cybersecurity. I chose this field because I found a passion in coding and solving practical real world issues with the means of a keyboard.
